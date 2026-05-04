@@ -73,6 +73,6 @@ If this policy changes materially, we'll update the "Last updated" date above an
 
 Questions, deletion requests, or privacy concerns:
 
-**bendnord@gmail.com**
+**binnor117@gmail.com**
 
 We respond to privacy inquiries within 30 days.
